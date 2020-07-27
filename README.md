@@ -1,1 +1,1 @@
-![image](https://github.com/furkanmavili/furkanmavili/blob/master/welcome.gif)
+![image](https://github.com/furkanmavili/furkanmavili/blob/master/tenor.gif)
